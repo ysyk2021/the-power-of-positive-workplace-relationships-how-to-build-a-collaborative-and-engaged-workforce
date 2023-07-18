@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 9: Conclusion: Mastering the Power of Positive Workplace Relationships
-==============================================================================
-
 In this book, we have explored the importance of positive workplace relationships and strategies for building a collaborative and engaged workforce. By fostering positive relationships in the workplace, individuals and organizations can achieve greater success, productivity, and well-being.
 
 The Importance of Positive Workplace Relationships for Personal and Organizational Success
