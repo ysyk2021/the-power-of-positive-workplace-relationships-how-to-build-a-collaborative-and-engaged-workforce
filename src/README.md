@@ -6,5 +6,4 @@ The workplace is an environment where we spend a significant amount of our time.
 
 This book is a valuable resource for individuals and organizations looking to improve their workplace culture, enhance employee engagement, and foster a more productive and successful work environment. By investing in relationship-building efforts and developing skills necessary for effective communication and collaboration, individuals and organizations alike can reap the rewards of a more connected, productive, and successful workplace culture. Whether you are a manager, team leader, or individual contributor, this book has something to offer for anyone looking to build positive workplace relationships and achieve success in the workplace.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
