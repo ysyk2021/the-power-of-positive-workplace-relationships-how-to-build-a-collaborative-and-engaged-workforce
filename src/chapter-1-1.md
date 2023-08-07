@@ -35,4 +35,4 @@ Positive workplace relationships offer numerous benefits that contribute to indi
 Conclusion
 ----------
 
-Positive workplace relationships are fundamental for fostering a collaborative and engaged workforce. Trust, respect, empathy, and effective communication are key ingredients that contribute to these relationships. The importance of cultivating positive workplace relationships cannot be overstated, as they lead to increased employee engagement, enhanced collaboration, reduced conflict and stress, and improved retention. In the following chapters, we will explore strategies and techniques to develop and nurture these relationships within your organization.
+Positive workplace relationships are fundamental for fostering a collaborative and engaged workforce. Trust, respect, empathy, and effective communication are key ingredients that contribute to these relationships. The importance of cultivating positive workplace relationships cannot be overstated, as they lead to increased employee engagement, enhanced collaboration, reduced conflict and stress, and improved retention.
