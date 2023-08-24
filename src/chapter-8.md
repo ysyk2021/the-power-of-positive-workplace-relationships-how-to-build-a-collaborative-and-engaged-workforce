@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Positive Workplace Relationship Performance
-===============================================================================
 
 Measuring and evaluating positive workplace relationship performance is essential for identifying areas of strength and opportunities for improvement. By tracking progress and success, individuals and organizations can adjust their strategies and improve their practices over time.
 

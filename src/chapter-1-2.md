@@ -1,5 +1,3 @@
-Historical Perspectives on Positive Workplace Relationship Theory and Practice
-===========================================================================================================================================
 
 In this chapter, we will explore the historical perspectives that have shaped the theory and practice of positive workplace relationships. By understanding the evolution of this concept, we can better appreciate its significance in building a collaborative and engaged workforce.
 

@@ -1,5 +1,3 @@
-Addressing Systemic Barriers to Inclusivity and Diversity
-====================================================================
 
 In this chapter, we will explore strategies for addressing systemic barriers to inclusivity and diversity in the workplace. Creating a truly inclusive and diverse workforce requires identifying and dismantling the systemic barriers that hinder equal opportunities and representation. By implementing these strategies, organizations can cultivate an environment that values and embraces individuals from all backgrounds and experiences.
 

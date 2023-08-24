@@ -1,5 +1,3 @@
-Developing Strategies for Resolving Conflicts through Positive Workplace Relationships
-===============================================================================================
 
 In any professional setting, conflicts are inevitable due to differing opinions, goals, and personalities. However, fostering positive workplace relationships can serve as a cornerstone for effectively resolving these conflicts. This chapter delves into various strategies that organizations and individuals can employ to manage conflicts through the lens of constructive relationships.
 

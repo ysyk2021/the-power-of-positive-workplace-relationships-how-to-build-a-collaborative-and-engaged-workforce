@@ -1,5 +1,3 @@
-Using Data and Metrics to Track Progress and Success
-===============================================================
 
 In this chapter, we will explore the importance of using data and metrics to track progress and success in building a collaborative and engaged workforce. By leveraging data-driven insights, organizations can measure and improve their efforts to foster positive workplace relationships.
 

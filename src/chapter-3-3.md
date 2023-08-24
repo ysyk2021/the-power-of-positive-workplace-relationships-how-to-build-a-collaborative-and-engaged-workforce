@@ -1,5 +1,3 @@
-Communicating Effectively and Respectfully
-=====================================================
 
 In this chapter, we will explore the importance of effective and respectful communication in building positive workplace relationships. Clear and respectful communication lays the foundation for collaboration, engagement, and a thriving work environment.
 

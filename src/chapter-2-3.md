@@ -1,5 +1,3 @@
-Building Skills for Cultivating Positive Workplace Relationships Effectively
-=======================================================================================
 
 In this chapter, we will explore the essential skills needed to cultivate positive workplace relationships effectively. By developing these skills, individuals can create harmonious and supportive connections with their colleagues, fostering collaboration, engagement, and a thriving work environment. Understanding and mastering these skills will empower individuals to build strong and positive relationships that contribute to their personal and professional growth.
 

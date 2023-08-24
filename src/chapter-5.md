@@ -1,5 +1,3 @@
-Chapter 5: Resolving Conflicts Through Positive Workplace Relationships
-=======================================================================
 
 Conflicts are a natural part of any workplace, but they can be detrimental to productivity and morale if not addressed effectively. Developing strategies for resolving conflicts through positive workplace relationships is essential for creating a collaborative and engaged workforce.
 

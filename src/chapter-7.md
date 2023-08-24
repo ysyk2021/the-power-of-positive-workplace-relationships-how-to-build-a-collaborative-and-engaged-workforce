@@ -1,5 +1,3 @@
-Chapter 7: Incorporating Positive Workplace Relationships into Leadership Practices
-===================================================================================
 
 As leaders, it is essential to incorporate positive workplace relationships into our practices in order to create a productive and engaged workforce. By developing strategies for incorporating positive workplace relationships into leadership practices, we can provide support and recognition to employees and create a positive work environment that fosters productivity and innovation.
 

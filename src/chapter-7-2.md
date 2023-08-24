@@ -1,5 +1,3 @@
-Providing Support and Recognition to Employees
-=========================================================
 
 In this chapter, we will explore the importance of providing support and recognition to employees in building a collaborative and engaged workforce. By acknowledging and valuing their contributions, organizations can foster positive workplace relationships and create an environment where employees feel supported, motivated, and empowered.
 

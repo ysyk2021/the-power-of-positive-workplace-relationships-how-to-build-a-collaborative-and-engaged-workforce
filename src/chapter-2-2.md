@@ -1,5 +1,3 @@
-Identifying Different Types of Workplace Relationships and Their Effects on Productivity and Engagement
-==================================================================================================================
 
 In this chapter, we will explore the various types of workplace relationships and the impact they have on productivity and engagement. Understanding these different relationship dynamics can help individuals navigate their interactions with colleagues more effectively and create a positive and engaged workforce.
 

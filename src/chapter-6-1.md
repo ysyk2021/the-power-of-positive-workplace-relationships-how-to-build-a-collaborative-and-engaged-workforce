@@ -1,5 +1,3 @@
-Developing Strategies for Promoting Inclusivity and Diversity through Positive Workplace Relationships
-=================================================================================================================
 
 In this chapter, we will explore strategies for promoting inclusivity and diversity through positive workplace relationships. Cultivating an environment where individuals feel valued and respected for their unique perspectives and experiences is essential for fostering inclusivity and diversity. By implementing these strategies, organizations can create a workplace culture that celebrates differences and promotes collaboration and engagement.
 

@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Benefits of Positive Workplace Relationships
-=========================================================================
 
 Positive workplace relationships are essential for building a collaborative and engaged workforce. In this chapter, we will explore the benefits of positive workplace relationships, different types of workplace relationships and their effects on productivity and engagement, and how to build skills for cultivating positive workplace relationships effectively.
 

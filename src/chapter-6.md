@@ -1,5 +1,3 @@
-Chapter 6: Promoting Inclusivity and Diversity Through Positive Workplace Relationships
-=======================================================================================
 
 Promoting inclusivity and diversity is essential for creating a workplace that values and supports all individuals. By developing strategies for promoting inclusivity and diversity through positive workplace relationships, individuals and organizations can create a more equitable and engaged workforce.
 
